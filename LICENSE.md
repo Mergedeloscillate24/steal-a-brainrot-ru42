@@ -1,4 +1,4 @@
-#  
+#  Updated escape tsunami for brainrots script is the best escape tsunami for brainrots script with anti-ban and speed. Safe, reliable, and optimized for maximum performance.
 
 
 
